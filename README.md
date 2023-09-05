@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YuzYuz8
-- 👀 I’m interested in Animation and Games 
-- 🌱 I’m currently learning Software Developing 
+- 👀 I’m interested in Animation and The Vision
+- 🌱 I’m currently learning Software Development 
 - 💞️ I’m looking to collaborate on Nothing LMAO
 - 📫 How to reach me Email me for funnies I guess 
 hannertamir@gmail.com
