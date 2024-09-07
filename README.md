@@ -1,4 +1,4 @@
--I’m Da KillerRadioStore
+-I’m KillerRadioStore
 
 -I’m interested in Coding and maybe even making a Rythem Game because I like the Gerne and It would be a great experince.
 
